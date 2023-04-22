@@ -1,0 +1,1 @@
+# xsoft.chatgpt.termsofuse.github.io
